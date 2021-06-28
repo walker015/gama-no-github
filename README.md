@@ -1,0 +1,2 @@
+O programa Hiring Coders #2 está abrindo muito minha mente e contribuindo bastante para meu progresso e minha aprendizagem.
+Ótimos professores e uma grande estrutura cuidando de tudo. Com uma staff super educada e bem preperada.
